@@ -74,9 +74,7 @@ How to use GitHub properly
 
 📫 Reach Me
 
-Email: (add your email here)
-
-LinkedIn: (add link here if you want)
+Email: (uzairteeli123456789@gmail.com)
 
 🌱 A Thought I Follow
 
